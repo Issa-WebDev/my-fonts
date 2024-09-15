@@ -1,0 +1,6 @@
+# FONTS THAT I USED 👇🏻
+
+- ROBOTO 💟
+- CASCADIA CODE 💗🔥🌞 (fav 💗)
+- JETBRAINS MONO ✅
+- FRAGMANT MONO ✅
